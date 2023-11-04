@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @BadrMods
+- 👀 I’m interested in Computers and Tech!!
+- 📫 How to reach me. You can use discord @badrmods!!
