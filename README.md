@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @BadrMods
-- 👀 I’m interested in Computers and Tech!!
+- 👀 I’m interested in Computer Science and Business Economics and Orgnization!!
 - 📫 How to reach me. You can use discord @badrmods!!
